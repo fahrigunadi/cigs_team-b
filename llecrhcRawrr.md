@@ -1,0 +1,1 @@
+#Rindu dengan orang ang sama, ibarat mengulang cerita lama. Tapi rasa ini nyata untuknya
